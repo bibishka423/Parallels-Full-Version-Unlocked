@@ -1,0 +1,1 @@
+# Parallels-Full-Version-Unlocked
